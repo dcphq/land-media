@@ -1,4 +1,4 @@
-# Land/Media/Anthropocene: Course Syllabus
+# Land / Media / Anthropocene: Course Syllabus
 
 Syllabus for the Asynchronous Online Class "ANSO-220: Land / Media / Anthropocene" 
 (Department of Anthropology and Sociology, Kalamazoo College, Spring Quarter 2020)
